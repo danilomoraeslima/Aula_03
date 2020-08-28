@@ -1,3 +1,4 @@
 Robert Downey Jr  
-Chris Hemsworth  
+Tom Cruise 
 Gabriel Macht  
+Christian Bale
