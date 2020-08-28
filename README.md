@@ -1,3 +1,3 @@
-Robert Downey Jr
-Chris Hemsworth
-Gabriel Macht
+Robert Downey Jr  
+Chris Hemsworth  
+Gabriel Macht  
